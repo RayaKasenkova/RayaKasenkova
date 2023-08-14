@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RayaKasenkova
+- 👀 I’m interested in rest in nature
+- 🌱 I’m currently learning crypto projects
+- 💞️ I’m looking to collaborate on some mate work wtih crypto
+- 📫 How to reach me?  Write me on twitter (X)
